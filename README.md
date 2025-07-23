@@ -26,7 +26,7 @@ _"Memories of This Life"_
 
 # DNI:
 
-𓆩♡𓆪 basic criteriaaa! but. - non-sharing self shippers. ships ESP arlefuri, neufuri, scaradurin etc. booktok. or if you just want ruin my mood!
+𓆩♡𓆪 basic criteriaaa! but. - non-sharing self shippers. ships ESP arlefuri, neufuri, scaradurin, capivuika etc. booktok. or if you just want ruin my mood!
 homophobia , transphobia ,
 
 zoophiles , pro/com shippers , ppl who think mizuki is a boy , THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fict ones) weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention seekers do not drag me into ur drama , racists , proshippers , pdf files , rcta , dcta , etc

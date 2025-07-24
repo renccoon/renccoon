@@ -6,7 +6,7 @@
 
 ╔═════ஓ๑♡๑ஓ═════╗
 
-_"Memories of This Life"_
+ _"Memories of This Life"_
 
 ╚═════ஓ๑♡๑ஓ═════╝
 
@@ -17,6 +17,8 @@ _"Memories of This Life"_
  :. ₊ ° . ☆ non sharing my sweetie Amia🌻 hehe!!/j/hj/srs?
 
 ˚ ◌༘♡: a big Capitano lover! <3
+
+ ˖⁺ ໒꒱ matching with my love @heart4cyno as our beloved harbingers໒꒱
 
 •´¨•✿ also feel free to draw on my sp , i appreciate these so badly! !<3
 

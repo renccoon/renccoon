@@ -31,7 +31,7 @@
 𓆩♡𓆪 basic criteriaaa! but. - non-sharing self shippers. ships ESP arlefuri, neufuri, scaradurin, capivuika etc. booktok. or if you just want ruin my mood!
 homophobia , transphobia ,
 
-zoophiles , pro/com shippers , ppl who think mizuki is a boy , THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fict ones) weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention seekers do not drag me into ur drama , racists , proshippers , pdf files , rcta , dcta , etc
+zoophiles , pro/com shippers , ppl who think mizuki is a boy , THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fict ones), weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention seekers do not drag me into ur drama , racists , proshippers , pdf files , rcta , dcta , if you joke about lobotomy or other disgusting tortures, ashley and andrew(?) defenders and likers
 
 do not copy and/or inspire from my skins on pt
 
